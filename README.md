@@ -1,5 +1,5 @@
 Hai kamu, yang suka scroll TikTok sampe lupa waktu 😜
-Program ini ngebantu kamu buat flashback dan ngestalk hubungan kamu sama mutual—khususnya sama si doi @piejja_ 😳
+Program ini ngebantu kamu buat flashback dan ngestalk hubungan kamu sama mutual—khususnya sama si doi  😳
 
 ✨ Fitur yang disediain:
 
